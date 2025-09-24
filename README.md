@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **hy2e@proton.me** For Collaboration/Project or Anything El
 - 🤔 **I’m looking for help with:** Be Anime
 - 💬 **Ask me about:** Collaborations
 - 📫 **How to reach me:** hy2e@proton.me
-- 😄 **Pronouns:** Imran Sir
+- 😄 **Pronouns:** hy2e
 - ⚡ **Fun fact:** I'm dumb
 
 # 💻 Tech Stack:
